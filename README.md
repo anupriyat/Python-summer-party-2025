@@ -1,0 +1,1 @@
+# Python-summer-party-2025
